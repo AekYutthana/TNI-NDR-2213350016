@@ -2,4 +2,4 @@
 
 Presentation's URL : https://www.canva.com/design/DAGodP4F-Ds/zQsrXXF-phjPFgcxfV5DYA/edit?utm_content=DAGodP4F-Ds&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
-Presentation 2 URL : https://https://drive.google.com/drive/folders/1fuEHFJb67-cUTAHC4XPN_ZbPEd2mzNoh
+Presentation 2 URL : https://docs.google.com/presentation/d/1T93aD2XGzaJFyBcWwtFlx9CSMIZI3zvD/edit?slide=id.p1#slide=id.p1
